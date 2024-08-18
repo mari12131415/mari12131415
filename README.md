@@ -1,5 +1,5 @@
 ## boas vindas ao meu perfil💙
 
-Meu nome e mariana estou 
+Meu nome e mariana 
 
-estudando _na aluha
+-estou estudando na aluha
